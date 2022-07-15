@@ -5,7 +5,7 @@
 - 📫 How to reach me: 
  
   + Discord : _RΔKiB™#7358
-  + Email : md3021822@proton.me
+  + Email : md3021822@protonmail.com
   + Facebook : https://www.facebook.com/RakibX0E/
   + Instagram : https://www.instagram.com/RZF_rakib/
   + Twitter : https://twitter.com/_supremerakib
