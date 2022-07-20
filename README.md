@@ -5,7 +5,7 @@
  
   + Discord : _RΔKiB™#7358
   + Email : md3021822@protonmail.com
-  + Facebook : https://www.facebook.com/RZFzenitsu/
+  + Facebook : https://www.facebook.com/menotrakib/
   + Instagram : https://www.instagram.com/__me_rakib/
   + Twitter : https://twitter.com/_supremerakib
   + Pinterest : https://www.pinterest.com/HMTheBoy154
