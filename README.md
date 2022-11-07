@@ -3,7 +3,7 @@
 - 💬 Don't ask me anything, I'm dumb :p
 - 📫 How to reach me: 
  
-  + Discord : _RΔKiB™#7358
+  + Discord : RZF_Rakib™#7358
   + Email : md3021822@protonmail.com
   + Facebook : https://www.facebook.com/RZFrakib/
   + Instagram : https://www.instagram.com/RZF_rakib/
