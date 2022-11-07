@@ -7,6 +7,6 @@
   + Email : md3021822@protonmail.com
   + Facebook : https://www.facebook.com/RZFrakib/
   + Instagram : https://www.instagram.com/RZF_rakib/
-  + Twitter : https://twitter.com/_supremerakib
-  + Pinterest : https://www.pinterest.com/HMTheBoy154
+  + Twitter : https://twitter.com/RZF_Rakib
+  + Pinterest : https://www.pinterest.com/RZF_Rakib
   + SupremeGamers forum : https://supreme-gamers.com/m/rzfrakib.44390/
