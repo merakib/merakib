@@ -3,10 +3,10 @@
 - 💬 Don't ask me anything, I'm dumb :p
 - 📫 How to reach me: 
  
-  + Discord : RZF_Rakib™#7358
+  + Discord : Breeze.ZXO#7358
   + Email : md3021822@protonmail.com
-  + Facebook : https://www.facebook.com/RZFrakib/
-  + Instagram : https://www.instagram.com/RZF_rakib/
-  + Twitter : https://twitter.com/RZF_Rakib
-  + Pinterest : https://www.pinterest.com/RZF_Rakib
+  + Facebook : https://www.facebook.com/breeze.zxo/
+  + Instagram : https://www.instagram.com/breeze.zxo/
+  + Twitter : https://twitter.com/Breeze.ZXO
+  + Pinterest : https://www.pinterest.com/Breeze.ZXO
   + SupremeGamers forum : https://supreme-gamers.com/m/rzfrakib.44390/
